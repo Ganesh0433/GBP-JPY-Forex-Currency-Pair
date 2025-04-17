@@ -1,0 +1,1 @@
+# GBP-JPY-Forex-Currency-Pair
